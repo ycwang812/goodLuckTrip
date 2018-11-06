@@ -5,3 +5,4 @@
 沖繩 2016-2017     | http://bit.ly/2RFdlNy
 沖繩 2017 4-10月號  | http://bit.ly/2F6hngu
 沖繩 2017 11-3月號  | http://bit.ly/2Peti0q
+沖繩 2018 4-11月號  | http://bit.ly/2APnnWS
