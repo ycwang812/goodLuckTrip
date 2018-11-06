@@ -1,11 +1,7 @@
-沖繩 2016-2017
+#### 超過100MB的連結如下：
 
-https://goo.gl/DHm7JC
-
-沖繩 2017 4-10月號
-
-https://goo.gl/7sfNbc
-
-沖繩 2017 11-3月號
-
-https://goo.gl/yTt1zr
+名稱                | 連結
+-------------------|------------------------
+沖繩 2016-2017     | http://bit.ly/2RFdlNy
+沖繩 2017 4-10月號  | http://bit.ly/2F6hngu
+沖繩 2017 11-3月號  | http://bit.ly/2Peti0q
