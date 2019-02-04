@@ -13,6 +13,7 @@
 東京 2018 4-5月號      | http://bit.ly/2JLC00c
 東京 2018 10-11月號    | http://bit.ly/2JIlv4X
 東京 2018 12-1月號     | http://bit.ly/2S73hBG
+東京 2019 2-3月號      | http://bit.ly/2UBsCjN
 長野 2017-2018        | http://bit.ly/2QnQ5n0
 長野 2018-2019        | http://bit.ly/2qvd1FD
 around TOKYO 2018    | http://bit.ly/2PFHO0w
