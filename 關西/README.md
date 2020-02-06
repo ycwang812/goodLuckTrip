@@ -7,3 +7,4 @@
 關西 2018 1-3月號   | http://bit.ly/2F2NnBV
 關西 2018 8-11月號  | http://bit.ly/2Dps5Ng
 關西 2018 12-3月號  | http://bit.ly/2G8UCrS
+關西 2019 11-3月號  | http://bit.ly/2H1FPxM
