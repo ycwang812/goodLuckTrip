@@ -16,4 +16,5 @@
 東京 2019 2-3月號      | http://bit.ly/2UBsCjN
 長野 2017-2018        | http://bit.ly/2QnQ5n0
 長野 2018-2019        | http://bit.ly/2qvd1FD
+長野 2019-2020        | http://bit.ly/2UsOiSj
 around TOKYO 2018    | http://bit.ly/2PFHO0w
